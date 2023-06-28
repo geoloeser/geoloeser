@@ -1,16 +1,18 @@
-### Hi there 👋
+eai meus parceiros 
 
-<!--
-**geoloeser/geoloeser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ - meu nome é geovanna
+ - esse é meu novo curso
+ - to cansada
+ - e to morrendo de fome
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+![](https://media.tenor.com/A1Ts3Jlj4zYAAAAd/kobayashi-dragon-maid-kanna.gif) 
